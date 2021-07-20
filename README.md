@@ -8,3 +8,8 @@
 
 - 📫 How to reach me If you find a way, then congrats man.
 
+- 📋 Links: 
+
+- 📺 Youtube: https://www.youtube.com/channel/UCyOX3AdAiL3C3RUFsvzI-Pg
+
+- 🎮 Itch.io: https://zanbradthecr3per.itch.io/
