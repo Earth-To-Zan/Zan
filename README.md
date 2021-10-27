@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ZanPotato
+- 👋 Hi, I’m @ZanPotato I am also known as ZanBradTheCr3per
 
 - 👀 I’m interested in many scientific fields.
 
@@ -10,6 +10,6 @@
 
 - 📋 Links: 
 
-- 📺 Youtube: https://www.youtube.com/channel/UCyOX3AdAiL3C3RUFsvzI-Pg
+- 📺 Youtube: [ Deleted ]
 
 - 🎮 Itch.io: https://zanbradthecr3per.itch.io/
