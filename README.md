@@ -13,3 +13,5 @@
 - 📺 Youtube: [ Deleted ]
 
 - 🎮 Itch.io: https://zanbradthecr3per.itch.io/
+
+- 📜 Pastebin: https://pastebin.com/u/ZanBradTheCr3per
